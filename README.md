@@ -1,4 +1,4 @@
-# Rossaw-Moderasyon-Stat-Log-Register-Invite-V13 +25 STAR'DA
+# Rossaw-Moderasyon-Stat-Log-Chat-Register-Invite-V13 +25 STAR'DA
 
  Bot da bazı hatalar bıraktım direkt alıp ben yazdım felan diye gezen orospu evladları yüzünden hatalar bıraktım
 onları düzeltip kullanabilirsiniz. Tek ricam botu sahiplenmeyiniz...

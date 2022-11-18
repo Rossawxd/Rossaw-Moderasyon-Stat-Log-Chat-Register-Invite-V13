@@ -1,1 +1,7 @@
-# Botu +25 star gelirse paylaşıcam gelmezse de yarramı yiyin artık hadi by
+# Rossaw-Moderasyon-Stat-Log-Register-Invite-V13
+
+ Bot da bazı hatalar bıraktım direkt alıp ben yazdım felan diye gezen orospu evladları yüzünden hatalar bıraktım
+onları düzeltip kullanabilirsiniz. Tek ricam botu sahiplenmeyiniz...
+
+Yardımları için ✰ Pusha#1348 , † Ramal? Salvador#2744 , Whosar#4664 Teşekkür ederim...
+
